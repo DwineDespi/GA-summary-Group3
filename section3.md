@@ -43,10 +43,36 @@ Registration Period: **August 5–11, 2025 (CLOSED)**
 <br>
 
 ## ADNU - MAGIS Technology Business Incubator
-#### Learn more about IGNITECOHORT2
+Learn more about [IGNITECOHORT2]
 
 **[MAGIS TBI] Official Facebook Page**
 
 [MAGIS TBI]: <https://www.facebook.com/adnu.magis.tbi>
+[IGNITECOHORT2]: <https://www.facebook.com/share/p/1AwZANfWDP/>
 <br>
 
+## Peerprep Fridays Mentoring
+
+<p><b>Mentors:</b> 3rd - 4th year</p>
+<p><b>Mentees:</b> Students Seeking Gudiance</p>
+
+### Mentoring Every Fridays (Online Or Face To Face)
+<br>
+
+## TACTICS Merch
+<h3><b>Tactics Polo shirt:</b> 500php</h3>
+<br>
+
+## ADNU League (Intramurals)
+- Encourage DCS students to participate in events
+- Talent Scouting
+<br>
+
+## TACTICS Platforms
+The Ateneo Consortium of Technological, Information, and Computing Sciences
+
+Official [Facebook] Page<br>
+Official [Website]
+
+[Facebook]: <https://www.facebook.com/adnutactics>
+[Website]: <https://www.adnutactics.org>
