@@ -1,2 +1,2 @@
 Department Initiatives and Projects
--In this part of assembly
+-In this part of assembly the department announces first the CSGUILD, second the Magis Technology Business Incubator, Third is mentoring sessions, fourth is ADNU league, fifth is Tactics Platform. What caught my interest is the mentoring session. Because this can greatly improve mentors to increase their confidence of teaching others. While the mentees gain knowledge from mentors and help them academically.
