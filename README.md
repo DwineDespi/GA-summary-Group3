@@ -1,8 +1,6 @@
 # GA Summary - Group 3
 
-This repository contains the summarized notes from the General Assembly, compiled by Group 3. The content is divided into five sections, with each member responsible for one part of the meeting.
-
----
+This repository contains the summarized notes from the General Assembly, compiled by Group 3. This is divided into five sections
 
 ### GA Summary Sections
 
